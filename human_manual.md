@@ -15,5 +15,14 @@ Remember the third line from top. ` We can not be what we are not allowed`. We n
 * We as an individual born, without our asking. POOF. One day we are born into chaos. *We have no say in it*
 * WE DIE, Thats a total fact, we can die any time, I can die while typing this. *We have no say in it*
 
+SO, another fact is that we all are born equally and with a blank slate. You grow up and become something on the thing fed to you by the ideology around. joke alert: if you are an hindu you respect and pray to cow. And seeing that muslims also wanted to respect cow, but hindu wouldnt allow it, so muslims choose to hate pig. they said, you love cow, so we will hate pigs. and then suddenly a britisher came a said, ok hindu loved cow, and muslim hates pig. so what should we do, and then he said it. he said that they will eat both of them. and a chinies man was listing to all the conversation with a cooked lizsard in his mouth. He slurps the tail in. 
+you were born blank, and fed shit by the people around you, and we cant be sure when things went shit. but because we all were born blank and we feed eathother shit beacuse everyone is sufferning with something or the other. it means that the system that we feed to newborns are faulty and no one is asking about the faulty system.
+
+so, we were born blank. now let that in. now, if you realise this. we could conclude that our creator made us that way because he was sure that we could figure everything out by ourself.
+now, lets begin to negate whatever shit we have gather. its the same shit that we share common,just the the  variation in the intensity makes it hard for enyone to help you, only you can clear your sit by knowing the basic about every shit, so that you can recognise it and negate it.
+The moment you think something is shit, the negation always happen by itself.
+so,lets go to the next chapter.s
+
+
 
 to get to the system of pain and pleasure, sadness and happiness.
