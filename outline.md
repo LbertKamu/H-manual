@@ -10,11 +10,13 @@ people can have different conclusion but they cant have different truth. Truth s
 ## 3. Introduce yourself.
 they ask you in school and you dont had the answer so you prepared at home, a fake introduction. you searched the google or asked your intelligent friend. what are you.
 
-## 4. like and dislikes, pain and pleasure.
+## 4.  pain and pleasure.
 A basic human function is, pain and pleasure. you avoid pain and go toward pleasure. thats it.
 
+## 4.1. 
+
 ## 5.Your ambition.
-ambition is related to that pleasure that you think is the ultimate release.
+ambition is the ultimate pleasure, you think that.
 
 ## 6. 
 ## 7. 
