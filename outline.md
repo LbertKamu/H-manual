@@ -1,5 +1,5 @@
 # Human Manual:
-``` How does a human being function, and knowing that can change what we are.
+``` How does a human being function, and knowing that can we change what we are.```
 
 ## 1. Introduction.
 we can be what we are allowed, No matter what rule we follow, if we are suffering there is some problem with the system that we are following.
