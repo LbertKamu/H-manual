@@ -13,7 +13,7 @@ they ask you in school and you dont had the answer so you prepared at home, a fa
 ## 4.  pain and pleasure.
 A basic human function is, pain and pleasure. you avoid pain and go toward pleasure. thats it.
 
-## 4.1. 
+## 4.1. happiness and sadness.
 
 ## 5.Your ambition.
 ambition is the ultimate pleasure, you think that.
