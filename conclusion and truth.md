@@ -36,12 +36,12 @@ Yo see the problem right, someone like this monk, divine is something which is g
 
 Gendun chophel, if you don't believe me here is the link to his wikipedia page. [Read for yourself](https://en.wikipedia.org/wiki/Gendün_Chöphel)
 
-So, in mathematics our genius people discoveres the magic numbers and there relations, they didnt made it up. Its like mankind is able to get the rough copy of creation, where we have all the truth scattered for us to make sence of it.
+So, in mathematics our genius people discoveres the magic numbers and there relations, they didnt made it up. Its like mankind is able to get the rough copy of our creator, where we have all the truth scattered for us to make sence of it.
 
 Whereas, Gendun Chophel living the life of a monk, indulged in sex and alchol for the first time in later life, made it his truth and at the end died in a brothel. He died a happy man, but from our eyes, he was a bastard who indulges in filthy activity and couldn't find love. IF you didn't understand, he made a conclusion about what divine is and lived according to it.
 Where as, an early genius disovered that circumfrence/diameter = pi. Try to disproof that. He didn't made conclusion but observed a pattern and discovered the truth. Which existed all along for him to discover. 
 So, in this book we are going to discover truth about the human existence, how we are able to discover the truth, why cant a dog discover the same truth like we can. Why are we allowed to discover the patterns in this universe. For what purpose.
-(write a chapter on the importance of the observation in one chapter.)
+(write a chapter on the importance of the observation.)
 
 
 
