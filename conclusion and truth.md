@@ -28,7 +28,20 @@ I am giving this math example because this book is the example of truth related 
 
 ## Story of conclusion througn an example.
 
-gendun chophel. 
+Gendun chophel. He is really insiprational for me, because of him I get to know something very profound.We will talk about it in further chapters.
+He was a monk in tibet looking for divine experiences and enlightnment and he became a schollar and a poet who is able to get his work published. So, when he visited the west and because the influence of some pervert men he find himself in a brothel with a glass of whiskey. You know what went through that night Gendun chophel indulged in alcohol and sex. And you know what he wrote the next day.
+```"Sex and alchol is the closest thing to divine, and every one should live  a sensory life first."```
+
+Yo see the problem right, someone like this monk, divine is something which is going to give ultimate pleasure. And we are going to talk about pleasure in the coming chapter, its going to blow you mind. 
+
+Gendun chophel, if you don't believe me here is the link to his wikipedia page. [Read for yourself](https://en.wikipedia.org/wiki/Gendün_Chöphel)
+
+So, in mathematics our genius people discoveres the magic numbers and there relations, they didnt made it up. Its like mankind is able to get the rough copy of creation, where we have all the truth scattered for us to make sence of it.
+
+Whereas, Gendun Chophel living the life of a monk, indulged in sex and alchol for the first time in later life, made it his truth and at the end died in a brothel. He died a happy man, but from our eyes, he was a bastard who indulges in filthy activity and couldn't find love. IF you didn't understand, he made a conclusion about what divine is and lived according to it.
+Where as, an early genius disovered that circumfrence/diameter = pi. Try to disproof that. He didn't made conclusion but observed a pattern and discovered the truth. Which existed all along for him to discover. 
+So, in this book we are going to discover truth about the human existence, how we are able to discover the truth, why cant a dog discover the same truth like we can. Why are we allowed to discover the patterns in this universe. For what purpose.
+(write a chapter on the importance of the observation in one chapter.)
 
 
 
