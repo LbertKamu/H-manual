@@ -1,1 +1,28 @@
+## The nature of discovery.
+I am strugling, I don't know where should I begin with, then I thought lets begin from the begining, from the day we are born.
+As we popped out into the world and first thing that happens with us is we experience the existence. All the beeps and the alien words, rays from the tubelight and the warmth of our mother's comforting voice, everything we experience we experience for the first time. So, Experience is the first thing we should talk about.
+### But first, let me tell you what we are doing in this chapter.
+We are trying to understand how a human being function, physically or phychologically, and knowing it is fairly easy because we are human being. So, we just need to know ourself. All we have to do is watch ourself in our daily life.
+And how to watch yourslef, we will understand it by exploring a concept of physics.
+
+#### Optics and seeing.
+**Pythagoras, he was active during 590 BC** when he first observed light on his window, light was always there but it was pythagoras who looked at it differently, he saw outside his window that his wife was hanging cloths, they were of different color, only rich could afford colorful cloths and drapes. As he was a great thinker of his time. So, he thought about seeing things, where he concluded that we see objects and things becasue our eyes emit rays that touches the object around us and result of it is that we see things, if the rays are not there in our eyes we could not see things. He demonstrated his finding by asking people to close their eyes and all the people gasped seeing that closing the eyes really stops the emitted rays leaving the eyes. as soon as they open their eyes some people felt rays leaving there eyes. Young women got there heart broken as they wanted to be with pythagoras to feed him grapes as he lay on the comforting silked bed, but he was marrried. 
+
+**Aristotle, he was active during, 410 BC, almost 80 years after pythagoras **
+```(if you are confused with the concept of BC: 500BC means 500 years before the birth of christ and 300Bc means 300 years before the birth of the christ. so 500 is older and 300 is younger as it is close to the birth of christ. say halleluya!)```
+So, Aristotle looked at the light and he thought of pythagoras theory about the nature of seeing, he closed and open his eyes to also experience the emmited rays by all he was felt with stained eyes, as he was trying to close and open his eyes all day, in doing so he discoverd that he sat in the morning trying to understand the nature of seing and now its evening and the sun was going down and its darkness becasue the stars are covered by gloomy roaring dark clouds, and the clouds were visible only when they roared with lightning. so, aristotle was staring at the dark sky in the night when a thunder roared louder then anything he had heard in his lifetime, it was a minute second of chaos where everything around his vision was visible and then again darkness, the dog howled and the larten were hanging loose. When it hit him, that vision depends on the light not on rays emmit by the eyes. He proposed that objects are visible because light illuminates them. He demonstrated it by asking people to wait and see another lightning strike.
+When it happened it was noted that aristotle has aded something meaningful to the observation of the world. Schollar and fellow thinkers accepted his theory, but people rejected it because they find that eyes emit rays is cooler then the rays blooms the objects for us to see. so, no young women were intreasted in feeding grapes to aristotle.
+
+** In the 11th century(1,5900 years after pythagoras.)  Ibn al-Haytham, we know him as the father of optics**
+He also observed light and its relation to objects. He also rejected the eyes emit rays theory when he tirelessly studied the behaviour of light, shadows,and reflection and proposed that we se things because lightrays from sunlight reflects off objects and enters the eyes. He wrote about it in his book, the book of optics. The young women feeding grapes ritual was not performed because now the man belonged to islam its different culture and different religion.
+
+**In 17th century(2,260 years after pythagoras.) Isaac Newton** work on nature of light expanded as more tools were available. He demonstrated that the light is made up of different colors, reflection and refraction which plays important role in how we human being percieve objects.
+![light](https://upload.wikimedia.org/wikipedia/commons/f/f5/Light_dispersion_conceptual_waves.gif)
+
+## When you put sunlight through a prism it splits into seven colors. Below is a real image.
+![img](https://upload.wikimedia.org/wikipedia/commons/1/1f/Light_dispersion_of_a_mercury-vapor_lamp_with_a_flint_glass_prism_IPNr°0125.jpg)
+
+## So, my point is to discover something that is so common and daily experience of life that is, seeing things around us took us 2,260 years to observe and discover. and what we discover was always there, but few paid attention for a span of 2,260 years to discover such glorious process that always existed infront of us so simply and effortlessly. All it took is this much of attention.
+
+Now, the main point, it took us that long to discover because it was something that existed outside of what humanbeing is. you know, light exist without our eyes to percieve them. Now, to discover the nature of human being, it should not take us thousands of years as we are trying to understand ourself. Light can not know itself, because light is allowed to be just light. But we humans are allowed to discover ourself so what is stopping us right. so, lets begin the journey of the self discovery. 
 
