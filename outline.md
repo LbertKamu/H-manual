@@ -11,6 +11,9 @@ people can have different conclusion but they cant have different truth. Truth s
 they ask you in school and you dont had the answer so you prepared at home, a fake introduction. you searched the google or asked your intelligent friend. what are you.```The text explores how our identities shift based on social contexts, highlighting the anxiety of self-introduction and the different personas we adopt with family, friends, and colleagues. It argues that our personalities are shaped by our likes, dislikes, and cultural influences, which evolve over time.
 The author identifies common life goals—happiness, health, beauty, fulfillment, and enlightenment—and suggests that everyone is at different stages in the "marathon of life," with many struggling to keep up. The concept of a "free personality" is introduced, where individuals can adapt effortlessly to situations without fixed preferences. The text aims to guide readers toward understanding human functioning and achieving greater freedom in their identities in the upcoming chapters.```
 
+## Experience and senses.
+you know.
+
 ## 4.  pain and pleasure.
 A basic human function is, pain and pleasure. you avoid pain and go toward pleasure. thats it.
 
