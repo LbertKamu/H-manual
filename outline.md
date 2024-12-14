@@ -32,6 +32,6 @@ there is a worse kind of conditening. that you are a pet of a society or your pa
 
 ## 9.There is a thin line between conclusion and trut, and onlyway to check it is the truth. you see the truth that is reveled itself creates the problem or solves it .
 ## 10.
-
+https://youtu.be/hREtfFxhIkg?t=155 sdiscription of the self by krishnamurthy.
 
 
