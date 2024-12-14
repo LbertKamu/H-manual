@@ -25,9 +25,12 @@ ambition is the ultimate pleasure, you think that.
 
 ## 6. Are you a pet.
 there is a worse kind of conditening. that you are a pet of a society or your parents. you have no desire, no ambition, and no purpose of life. you are only seeking love from your parents and respect from your society. They made you that way. your parents showed affection only if you did something they liked. like getting good marks, they love you, you go to a temple , they love you, you getup early and greet them they love you, you get married to their choice of guy or girl, they love you, you get promotion they love you, you have a higher package they love you. and if you are this you know what you have to do. but if you are changed anything a bit, these loving bastards show you their cruel side when you go against them, looking fo someting that you want to do. unless you do what they asked you to do, everything is fine. same with the society, if you try to be something different, they thrash you. if this is you, i dont think this book is for you because. you are in the future going to discover yourself, and will get to chase your pleasures. then you will need this book. to rid yourself of the burden of desire. this is the last chapter.
-## 7. 
-## 8. 
-## 9.
+## 7.  no fix place. *** negative conclusions.*** needs a full chapter.----from now own i will not make conclusion. ect. ect.
+
+## 8. u can not live without conclusion, but knowing that is all you need to know, people change all the time and forming a conclusion about anyone is stupit, but you are a studet, and there is a guy who is bully, and you talk to him just becase you are trying hard to not forming conclusion that the bully is really not bully, you stay away knowing he can change, but for now he is a bully but in future if i see him i wont run away just because today he is a bully. ect...ect....!
+
+
+## 9.There is a thin line between conclusion and trut, and onlyway to check it is the truth. you see the truth that is reveled itself creates the problem or solves it .
 ## 10.
 
 
