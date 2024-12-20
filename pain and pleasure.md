@@ -18,6 +18,13 @@ The loop of duality.
  Becasue the day went by according to your happiness and you likes.
  lets say: you wake up. and you get to know that your mother prepared your favorite food.(likes). you become happy. you took a bath and and suddenly its raining and your father asked you to skip school because the news says the the weather is going to get worse. You don't like to go to school and today you don't have to go. you are on cloud seven and you have experienced the peak of happiness. Now you have all the time to complete your homework and play games. you did your homework and slept for few hours before eating your favorite meal, as soon as you wake up you mouth start to water, as you are thinking about your favorite food. You eat and play game and at night you sleep with a smile wishing all the days should be like this.
  If the day treats you as a king you are happy. and if it does'nt it makes us miserible.
+ 
+ we struggle everyday because our happinesss depend upon when something happens the way we like and sadeness depend upon when something hapens that we dont like.
+ we make the rules and suffer it. rule one: no one should disturb you when you are writing. and when someone disturbes you, you go crazy. Here [watch this](https://youtu.be/SPSHHR-YueM?t=119).
+ examples.
+ 
+ universal mother in law and daughterinlaw struggle.
+ both have dreams.
 
 ### Pain and pleasure:
 
