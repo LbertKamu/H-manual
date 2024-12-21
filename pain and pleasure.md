@@ -31,6 +31,31 @@ The loop of duality.
  
  universal mother in law and daughterinlaw struggle.
  both have dreams.
+ 
+ The loop of duality:
+ 1. if something happens that you like you are happy. This is pleasure: which in clude all the good sensations and good feelings.
+ 2. when something happens that you dont like you are sad. this is pain: which include all the discomfort and painfull feeling. which include, sadness, loneliness, boredome, jealousy, envy and so on so on.
+ 3. naturally we avoid discomfort and run towards the things we like. we chase the pleasure.
+ 4. example of discomfort that is common for everyone: slap, fever: you are filled with thoughts.
+ 5. What is discomfort, what is pain, we need to undersatand that because we welcome pleasure.but becasue of pleasure the pain exist. Break the loop and live the fulfilled life you always wanted.
+ 6. because of pleasure their is pain and because their is pain we are ambitious and we think that acheaving the things we want will fulfil us and fix everything in our life. but people who are where they wanted to be are not fulfilled, the desire to fulfil stays with them till the day they die.
+ 7. problem with pleasure is that it exhaust over time. because pleasure is not alive and you experiece it in the past. fruit example.
+ 8. something this is pleasing to your senses right now doesnt mean it will be the same always.
+ 9. you dont deny pleasure, you just see clearly that the pleasure is happening because of the circumtancces. Same situation that is giving you pleasure right now might left you displeasing in the future. 
+ 10. pleasure is good when its happening, after that it has no significance. Dont take it with you and compare it with everytime you face the same situation again.
+ 11. The masterbation to sex story. thank god that we age and as we age we are less sexually aroused.
+ 12. break the loop of duality and become free, then you will live in the present.
+ 
+
+mind: 
+the problem of language: the world is really unknown.
+1. thought is the momories related to the realworld things. there was a girl in my college who used to sell sex for money and when we looked at her all we see was the stories that we heard, that were processing at the back of the mind.
+2. imagination is the modification of the memories that we have collected. if you dont know who archeologist are you cant think about them. when creating stories we mix thing and which creates the ilusion that its something new.
+3. thinking is the related sister of thought, if thought is not there thinking can not exist. thinking, anticipating the future event
+4. thinking is contemplating on something that had happened. 
+5. thinking happens in the form of conversation, either we are fixing something in the past, or doing something in the future. which include people. preaching to the croud. giving advice to someone, criticising someone, thinking happen in relation to someone you like or hate. You dont think about the person you dont care about.
+3. thinking is desire. wish i could had it.
+4. thinking is mechenical, repeating something that you have heard.
 
 ### Pain and pleasure:
 
