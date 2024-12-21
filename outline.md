@@ -1,3 +1,37 @@
+---
+what is human manual.
+its a book about ourself and what we are and [why](https://youtu.be/jQoNILVFFvs?t=78) we are? why we born into caos and die in misery. This book tries to tackle that problem of living.
+
+purpose of this book.
+When one reads this book, the writer hopes that the reader is brave enough to drop every shit that he or she has smear onto him or her, including this book.
+
+
+Basic tree of H-manual.
+
+1. experiences: good and bad experiences when something pleases our senses -- its good experiences. and otherwise.
+2. 2. pain and pleasures, happiness and sadness: when something happens the way we want then its pleasure, happiness. otherwise. 
+3. What do we want:-----we want what other's have, do we really want someting really. our want based on the preception that getting it it satisfy us. or fulfill us.
+4. what is fulfillment.
+5. 
+MAJOR PROBLEM OF THOUGHT: We need to understand thought. dont over explain because its just a manual, you will go deep in other books where you tackle specific problem.
+you are thought..... write it.
+problem of language-----:
+thought = memory(experiences) (triggers) are everywhere = thinking can not exist without thought. Thinking is like chatgpt it takes every trigger as a question and tries to give answers, opinion....
+---
+
+---
+
+
+
+New classification that is divided into three parts.
+The outside:
+body:
+mind:
+
+
+---
+# The outside:
+---
 # Human Manual:
 ``` How does a human being function, and knowing that can we change what we are.``` ``````
 
@@ -10,6 +44,11 @@ people can have different conclusion but they cant have different truth. Truth s
 ## 3. Introduce yourself.....
 they ask you in school and you dont had the answer so you prepared at home, a fake introduction. you searched the google or asked your intelligent friend. what are you.```The text explores how our identities shift based on social contexts, highlighting the anxiety of self-introduction and the different personas we adopt with family, friends, and colleagues. It argues that our personalities are shaped by our likes, dislikes, and cultural influences, which evolve over time.
 The author identifies common life goals—happiness, health, beauty, fulfillment, and enlightenment—and suggests that everyone is at different stages in the "marathon of life," with many struggling to keep up. The concept of a "free personality" is introduced, where individuals can adapt effortlessly to situations without fixed preferences. The text aims to guide readers toward understanding human functioning and achieving greater freedom in their identities in the upcoming chapters.```
+---
+
+# The body:
+
+---
 
 ## Experience and senses.-----
 you know.
@@ -37,24 +76,13 @@ https://youtu.be/hREtfFxhIkg?t=155 sdiscription of the self by krishnamurthy.
 11. what are the words feel like, what the temperature is hot feels like, what cold water feels like, what a slap feels like, what anything that is displeasing feel like.
 W
 
-what is human manual.
-its a book about ourself and what we are and [why](https://youtu.be/jQoNILVFFvs?t=78) we are? why we born into caos and die in misery. This book tries to tackle that problem of living.
-
-purpose of this book.
-When one reads this book, the writer hopes that the reader is brave enough to drop every shit that he or she has smear on him or her, including this book.
 
 
-Basic tree of H-manual.
 
-1. experiences: good and bad experiences when something pleases our senses -- its good experiences. and otherwise.
-2. pain and pleasures, happiness and sadness: when something happens the way we want then its pleasure, happiness. otherwise. 
-3. What do we want:-----we want what other's have, do we really want someting really. our want based on the preception that getting it it satisfy us. or fulfill us.
-4. what is fulfillment.
-5. 
-MAJOR PROBLEM OF THOUGHT: We need to understand thought. dont over explain because its just a manual, you will go deep in other books where you tackle specific problem.
-you are thought..... write it.
-problem of language-----:
-thought = memory(experiences) (triggers) are everywhere = thinking can not exist without thought. Thinking is like chatgpt it takes every trigger as a question and tries to give answers, opinion.
+
+---
+Mind: thought, language, thinking
+
 
 
 
