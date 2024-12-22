@@ -47,19 +47,9 @@ The loop of duality.
  12. break the loop of duality and become free, then you will live in the present.
  
 
-mind: 
-the problem of language: the world is really unknown.
-1. thought is the momories related to the realworld things. there was a girl in my college who used to sell sex for money and when we looked at her all we see was the stories that we heard, that were processing at the back of the mind.
-2. imagination is the modification of the memories that we have collected. if you dont know who archeologist are you cant think about them. when creating stories we mix thing and which creates the ilusion that its something new.
-3. thinking is the related sister of thought, if thought is not there thinking can not exist. thinking, anticipating the future event
-4. thinking is contemplating on something that had happened. 
-5. thinking happens in the form of conversation, either we are fixing something in the past, or doing something in the future. which include people. preaching to the croud. giving advice to someone, criticising someone, thinking happen in relation to someone you like or hate. You dont think about the person you dont care about.
-3. thinking is desire. wish i could had it.
-4. thinking is mechenical, repeating something that you have heard.
-
-### Pain and pleasure:
 
 
-Its a vague term, pain and pleasure are many many different things, like happiness and sadness. Good and bad. like and dislikes, and many more terms. but at top of a chain it comes in the catageory of pain and pleasure.
-Pleasure is when something that you wanted happened.
-like: you are hungry, your stomach is roaring and you want a large cheese burst pizza and you get it. if it tastes good its pleasure, happiness and your likeness. Because your taste buds are satisfied and its pleasure for you. but if it is made shit and taste bitter then its pain to finish that pizza, because you dislike it you are sad. Depending upon 
+
+
+
+
