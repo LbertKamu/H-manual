@@ -74,6 +74,7 @@ there is a worse kind of conditening. that you are a pet of a society or your pa
 https://youtu.be/hREtfFxhIkg?t=155 sdiscription of the self by krishnamurthy.
 
 11. what are the words feel like, what the temperature is hot feels like, what cold water feels like, what a slap feels like, what anything that is displeasing feel like.
+12. reality vs your desire.
 W
 
 
