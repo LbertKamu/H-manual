@@ -6,7 +6,7 @@ When we introduce ourself, what do we say, what we are?
 
 So if we look closely, we are the combination of the likes and dislikes according to the cultur or religion we accept. We born into a religious or non-religious family that impacts what we are going to like and dislikes; and as we grow we discard what doesnt make sense and accpet what make sense to ourself, and throughout our life the likes and dislikes changes when our friends tell us you are not the same anymore. Or a family member who you use to vibe with fewyears back brings you a sweet you liked, but now you don't taka added sugar because it has harmful effect on your body. 
 We also have to accept that our older versions still exist in the mind of different people that we have met in the past, and thats because we had changed something about our personality that is not in line with the person we are friend's with, so naturally we change people in our life according to the rate we change ourself.
-## So what are we changing in ourself.
+## So what are we changing in ourself..
 There are some constant that we are chasing in our life.
 1. happiness. 2. health. 3. Beauty. 4. fulfilment. 
 5. And if you are dellusional like me then Enlightment.
