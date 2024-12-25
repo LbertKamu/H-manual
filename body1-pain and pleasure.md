@@ -19,7 +19,19 @@ But i am writing a fiction which requires a flow, a flowing state when ther word
 
 The second story i also wrote during the lockdown, but the days were demanding, the family dynamics was such that their was chaos and in the campus where we live in they opened the library, and i wrote my second story in that library, from 11 am to 2pm. The day will have demands no mater how you try to control your day, it will have something for you. Even if you choose to live alone, you have to deal with the day.
 
-My third story I wrote in a park, because the library was crowded by now and people used to freakout by my amount of frenzy and focus, how I am fliping page after page, stretching wildly, moving around in excitment when trying to imaging a plot and its posibilities. I had to leave.
+My third story I wrote in a park, because the library was crowded by now and people were freaking out by the amounat of frenzy and focus I put into writing, how I am fliping page after page, stretching wildly, moving around in excitment when trying to imaging a plot and its posibilities. I had to leave.
+
+The amount of struggle i have to put just to get a secluded place to myslef is just because the day is as alive as i am, and it demands a lot, no matter who you are. even when i had managed to get the secluded writing place, there were many intruption.
+
+So, when something happens the way we want it to happen we are happy for that day. and when nothing happen the way we want, we are miserable.
+
+## So, what do we want?
+same, thing actually, happiness and fulfilment. Happiness and fulfilment are related friends, happiness is something that you get when everthing goes the way you wanted but fulfilment on the other hand is a state where everyday to the end of you life you are happy and satisfid. (holy shit i have a new idea for a movie, what if somehow a character is put into a situation where ther are always happy and they get bored of happiness. 60s bollywood happy life, with the reality of his prison life.) lets look at the second point, when we say we are totally fulfilled and satisfied. Do we mean that, we got everything that we ever wanted, the girl you liked is your wife now, you wanted to travel into space and now you have a space company, you eat fast food, pizza burger, cheese, and all the fatty stuff and you still are healthy, and have six packs, you are the richest person in the world that elon musk is your driver and yet you are able to sleep twelve hours a day. you are running ten sucessfull company yet you are on vacation most of the year travelling the world. You liked another girl and now she is your second wife, for you specially god has send his angles as your maid. for you god has made you imortal and now you can live forever and has babies more the gengis khan could ever produce.
+
+You see the problem, your want has nothing to do with the reaity, what you read above is an adult unemployed male dreaming in the afternoon as he lay listening to a motivationl vidoes on youtube. 
+
+`We want someting because we think that getting what we want will give us happines and fulfillment. We dont want that a random stranger should get the girl you like. you want that girl for yourself because you think that she can provide what you want, her existence in your life will solve all your problem, you are going to have sex with her, you are going to protect her and ect..ect..
+and just thinking about it give you pleasure, and you wonder if she really be with you, the world will be perfect for you. yet we see people breaking up. because what they imagined was not true, in reality she doesn't need a man to protect her, and it hurts your ego and you desire to protect her, you are unhappy, She calls you pervert, because all you want is sex, and it made you insecure and your sense of self is hurt, you are unhappy because you are not having the amount of sex you thought you could be doing. see this [reddit](https://www.reddit.com/r/indiadiscussion/comments/1hlceuu/lmao_when_prn_sites_replies_are_more_sensible/#lightbox) post.
  
 
  The loop of duality:
