@@ -36,6 +36,8 @@ Bad experience means pain. Good experience means pleasure.
 Pain and pleasure exist in various intensity. little pain and pleasure or big pain and pleasure.
 Pleasure is constant in our life no matter the life we choose, because naturally we want pleasure because it feel good and we avoid pain because it naturally feels uncomfortable.
 
+Next is: Inputs: our daily living.
+
 
 
 
