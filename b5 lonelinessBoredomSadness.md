@@ -1,0 +1,1 @@
+What do you do when you are faced with these. you try to collect more pleasure to keep it together and when the repetition of pleasure is being exhausted you feel these things until you go again collecting pleaure. avoiding pain.
