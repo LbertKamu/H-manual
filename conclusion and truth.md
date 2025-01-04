@@ -54,7 +54,7 @@ So, in this book we are going to discover truth about the human existence, how w
 
 So, conclusion is something which people draw based on there experience, like for gendun chophel sex and alcohol is the closest thing to divine and for us its an activity to rid us of pain and a breakup. so these are two conclusion, but what sex and alcohol truly is just an activity that gives us a bit of pleasure. 
 
-Truth is something which exist in the present, it is not dependent upon you or anyone its their screaming at you face to be discovered, you can't draw it, you can't do anything about it, it is obsolete either you know it or you don't.
+Truth is something which exist in the present. It's not dependent upon you or anyone else, its there screaming at your face to be discovered, you can't draw it, you can't do anything about it, it is absolute either you know it or you don't.
 Like, pi = 3.14 its the truth try to disproof it, you can gather a million people and make them believe that pi is equal to 2.34 but the truth will not change because a million people believe in it. The truth is Pi will always be 3.14.
 
 
