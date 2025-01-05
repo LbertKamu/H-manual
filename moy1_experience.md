@@ -18,7 +18,7 @@ See, different type of situation makes a experience bad or good.
 Another example, a girl of your liking, kissing you is a pleasing experience, but a bummer from the street kisses you and run is a traumatic experience or bad experience.
 > Now, we know that our experience is based on the situation we are encountering. Depending upon how the situation interacts with our senses we collect bad and good experiences that we call memories. If it feels good then, its a good experience. If it feels bad its a bad experience.
 
-So, when every experience depends on how it made us feel, then we need to talk about. Feelings. In other words, what is pleasure and what is pain. What is happiness and what is sadness. What are these situations(inputs) that we get from life while living. thats the next chapter. I know this is basic but stay with me, its important.
+So, when every experience depends on how it made us feel, then we need to talk about. Feelings. In other words, what is pleasure and what is pain. What is happiness and what is sadness. What are these situations(inputs) that we get from life while living that make us feel good and bad. thats the next chapter. I know this is basic but stay with this, its important.
 
 
 
