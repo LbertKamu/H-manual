@@ -38,7 +38,10 @@ We do a thousand thing just to avoid pain, but we never try to understand pain b
 
 2. If the first example is unrelated to you then this one will give you the right idea. Have you ever asked yourself, why when you have fever you just think to much that it makes you sweat and make you head hurt, its another uncomfortable pain that we can't avoid. The fever, we all get it, its good for the body, you immune system is getting stronger, but you have observed that the intensity of your thoughts are so heavy that it hurt your brain, you close your eyes and the thoughts goes more intense. Let me tell you why, it's the response of the body to this uncomfortable things happening in your body, by thinking to to much it try to avoid you attention from the fever to thinking to avoid this weird feeling but all the attempt are useless, see for yourself when you are in fever, it does happen.
 
-3. When you bath with a cold water you use words or jumping jacks before you pour the water, some chant mantras, some repeat the name of their favorite deity. Ram, ram, ram. Or, Shyam, shyam, shyam. Or, if you are an atheist, then you repeat fuck, fuck, fuck. or, you simply scream before you pour the water. So, have you ever noticed, what a mug of cold water on you body feels like, No, But an ice cream more colder the the cold water, which can also gives brain freeze, you love it and you have a preference. mine is butter scotch. see how we know pleasure but when it comes to pain we avoid it.
+3. When you bath with a cold water you use words or jumping jacks before you pour the water, some chant mantras, some repeat the name of their favorite deity. Ram, ram, ram. Or, Shyam, shyam, shyam. Or, if you are an atheist, then you repeat fuck, fuck, fuck. or, you simply scream before you pour the water. So, have you ever noticed, what a mug of cold water on you body feels like, No, But an ice cream more colder the the cold water, which can also gives brain freeze, you love it and you have a preference. mine is butter scotch.
+
+
+` See how we know pleasure to the barest detail but when it comes to pain we avoid it by pursuing pleasure.`
 
 Next is collecting pleasure.
 

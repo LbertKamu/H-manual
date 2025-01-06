@@ -1,20 +1,20 @@
 ## Inputs: The life that meet us.
 Inputs are the things that we can't control, but it is still in the realm of pleasing and displeasing of our senses---- Inputs are the things that might make a pleasurable situation into painful situation, and a painful situation into a pleasure one.
-Inputs is the life you are living:
+Inputs are the life you are living:
 1. For say you like coffee, and now you are out walking in the autumn breeze, it's one of those rare evening when traffic is so light, you might think that you are almost in paris, the bell jiggles behind your left ear, you turn and you see a coffee shop. You step in, the bell jiggles above you. You order one coffee and it tastes like shit. The experience is bad even though you love coffee.
 
-Thats why they say when life give you lemon you make a lemonade and drink up.  
+Thats why they say when life give you lemon, you make a lemonade and drink up.  
 
 Inputs are also your likes and dislikes but with a twist. Inputs are the day you face, no matter what your like or don't like, the day will challenge you, you love coffee, the day might feed you a shitty coffee to ruin you.   
 
 `The day challenge you, and your struggle to accept the challenge makes you miserable.` The shit is getting real guys. Isin't it [interesting](https://youtu.be/Ugpg8XruhVk?t=7)
 
 ## Our daily life.  
-See it in your daily life, we want to control the day, but the day is as alive as you are, and it has its own momentum, and you have to confront that. You have no other option.   
+See it in your daily life, we want to control the day, but the day is as alive as you are,it has its own momentum, and you have to confront that. You have no other option.   
 When the day confronts you on the daily basics and you struggle and you get stuck in a loop.   
  Then you are functioning in a limited loop of happiness and sadness, pain and pleasure, likes and dislikes every day.
  **For eg.**  
-1. you choose to rest for the day. You switch off your phone and was planing to sit on your bed and watch movies or sleep or play games. All you want to do today is be free from every shit you have in you life. Now, if what you like will happen or not depends on the day and situation you are in, maybe today your mother need groceries, your relative brother is looking for a college and you have to find it for him, or your girlfriend wants to go out for shopping, or you might get sick because of the food you ate last night, or you wake up with a sharp pain that wont go away and you have to visit the doctor, and wait in the lobby for hours. You can't help it, you have to confront the day no matter what you want with the day.
+1. you choose to rest for the day. You switched off your phone and was planing to sit on your bed and watch movies or sleep or play games. All you want to do today is be free from every shit you have in you life. Now, if what you like will happen or not depends on the day and situation you are in, maybe today your mother need groceries, your relative brother is looking for a college and you have to find it for him, or your girlfriend wants to go out for shopping, or you might get sick because of the food you ate last night, or you wake up with a sharp pain that wont go away and you have to visit the doctor, and wait in the lobby for hours. You can't help it, you have to confront the day no matter what you want with the day.
 
 Now, you might hate going to the doctor and wait in the lobby for your appointment and you resent you body for doing this to you on a day where you needed the time for yourself, but when you are angry and pissed and was waiting in the lobby, a girl of your age joins you for a conversation and even if you are in pain you are talking, blushing and exchanging numbers. When finally spending the whole day at the hospital and talking to her and get to know her you reach home with a smile on your face, a day well spend you say before going to bed. (You see how inputs are, then can change you dislikes into likes if the given situation bend according to you. You become happy other wise you are a sad creature. You see the loop now)  
 
