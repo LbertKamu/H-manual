@@ -47,26 +47,3 @@ Next is collecting pleasure.
 
 
 
-## collecting pleasure:
-
-No matter what we like, want or desire for ourself unpredictability of life will always be there no-matter what you do, and secretly we accept that thats why we collect pleasure to avoid that unpredictability, from the point you wake up to the point you sleep. you have safe, and comforting pleasures that you chase. 
-
-1. The day is not going in your favour, you watch your comfort movie that is there for this exact situation when you loose the grip on the day, i forget the ice cream tub, obviously sugar free.
-
-
-
-
-
-
-
-another topic:
-Our physical existence is about duality, you and me, him or her, this and that, here and there, good and bad, beautiful and ugly, happy and sad. Thats the truth of our physical existence, duality really exist in you mind, not in reality. lets say beeauty---- dad bods were, beautiful, thic booty was beautifull, now zero figure is beautiful.
-                
-
-
-The things we really dislikes, the things that really gives us pain we try to avoid it because pleasure feels good. so we chase pleasure. After a shitty day you dont hustle for your pation. you play video game. to . win.
-
-we avoid pain-----fever, slap. where they can recall that yes really they avoid pain.
-
-how we avoid pain, by chasing pleasure.
-collecting pleasure and making habits.
