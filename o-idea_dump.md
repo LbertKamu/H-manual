@@ -69,6 +69,11 @@ look at you life and see if you are anything other then the person who collects 
  universal mother in law and daughterinlaw struggle.
  both have dreams.
  
+
+
+
+ Conditioning example: I love it so much that I want to keep it for myself.
+ you cage your animals, and their is a large market for it. You see a dog and made you feel good about 
  
  
  
