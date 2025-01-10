@@ -74,7 +74,17 @@ look at you life and see if you are anything other then the person who collects 
 
  Conditioning example: I love it so much that I want to keep it for myself.
  you cage your animals, and their is a large market for it. You see a dog and made you feel good about 
- 
+ Hell, I was restless if I didn't write something in a day. And he is also [click here](https://youtu.be/myrRBNHswfQ?t=23). I used to feel restless, when I didn't write because It used to make me happy, fulfilled, those moment of constant flow, and the process of creation, It just felt right, like a drug that I had to had, No matter what. I was dependent on it. So, when it was not their naturally it's going to produce misery.
+
+SO, again we pursue pleasure and avoid pain by pursuing pleasure or pursuing our collecting pleasure. You see the loop now, can we say that the activity that gives us most pleasure are the cause of misery, when the pleasure is not there.
+
+Same goes for smoker, its a deadly trap smoking, you start if for fun and then you depend on it, when every thing goes to shit you smoke and it gives you the the chemicals that needed for you to feel together, its one solution to every problem. When you are suffering, smoking can work as a relief. And when you are happy its also helps in uplifting that happy feeling even more. You depend on it totally. And then the time comes when you start to have physical symptoms of sickness from smoking. Bad breath, dark circles, weak mind and body. Easily tired, or all day tiredness, weak eyesight. fevers, cold and running nose. Weak lungs, loss of sense of smell and taste and many more and a smoker being aware of it still smokes. Because when he is miserable his only pleasure is to smoke. So, when he thinks about quitting smoking and forces himself to quit, he end up smoking more because he is so dependent on it that, the source of pain is the source of pleasure. 
+  
+You smoke, you go in guilt, as you should stop, and you feel bad so you smoke more, and you again go in guilt, and then you feel bad , then you again smoke more. The smoke is the deadliest trap, Because its easily available. Its a death loop.
+
+Now, same with everything, you remove the smoke with the thing you are dependent on for pleasure, lets say put girlfriend in the place of smoke, its the same mechanism.
+
+When the pleasure is not their, pain is. When their is pain, their is desire for pleasure, and when their is pleasure, and pleasure is exhausted but you are still attach to it because 
  
  
 
