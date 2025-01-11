@@ -1,6 +1,6 @@
 ## On Experience:
 lets begin from the top. The day we are born.
-As we pop out into the world; First thing that happen with us, is we experience the existence. You are in a hospital hearing all the beeps from the monitors. Hearing alien native words, eyes squint from the gleaming tube light, Electric buzz in the wires and the warmth of our mother's comforting voice, everything we experience we experience for the first time. So, Experience is the first thing we should talk about. Lets jump right in.
+As we pop out into the world; First thing that happen to us, is we experience the existence. You are in a hospital hearing all the beeps from the monitors. Hearing alien native words, eyes squint from the gleaming tube light, Electric buzz in the wires and the warmth of our mother's comforting voice, everything we experience we experience for the first time. So, Experience is the first thing we should talk about. Lets jump right in.
 
 ### What is experience?
 We are born with five senses. That is taste, smell, touch, sound, and seeing. These are common among every one of us. Now, Experience happen through these god given senses. 
