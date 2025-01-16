@@ -14,7 +14,7 @@ Now, for this example: A good coffee is that It should have the same aroma as it
 
 So, unpredictability of life is every moment you live, and you feel discomfort when life challenges your memory of the past. See it in your life. 
 ---
-When you have to eat a recipe you do not like why is that, for me I never liked soup or stew because elders in my life used to get sick and we all have to eat that soup and stew. And when ever someone fall sick we have to attend to them and we have to eat what that sick person was eating.
+When you have to eat a recipe you do not like why is that, for me I never liked soup or stew because elders in my life used to get sick and we all have to eat that soup and stew. And when ever someone used to fall sick we have to attend to them and we have to eat what that sick person was eating.
 ---
 Now, whenever these soup and stew used to be made in our home, the same feelings associated with these food would come before us.
 ---
@@ -54,4 +54,6 @@ Now, It will take immense courage to get at that road, and few re-visits to make
 ----
 Next Chapter is: If good experience and bad experience is past, why do we chase it, why do we chase pleasure if it happened it the past. Because we know that past is equal to death, because it happened. Whats happening is alive. What happened is dead. Are we that stupid that we are chasing what's dead.
 
-No, we are not stupid we are clever, we have discovered pleasures that can feel the same again for a long time. Till they get exhausted.
+No, we are not stupid; we are clever, we have discovered pleasures that can be felt same again for a long time. Till they are exhausted.
+
+
