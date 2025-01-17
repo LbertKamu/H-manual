@@ -36,12 +36,16 @@ Again memory is the culprit, it created the good memories related to the object 
 ---
 so, again are we stupid that our memory fooled us. It fooled us into thinking that the thing that has given me pleasure in the past, is endlessly going to give pleasure every time. But I now see that, it felt good in the past but me expecting it to feel good every time it do it is stupid. I see that. 
 I also see that, some how, There are pleasure which can give pleasures for long term and my memory again fooled me into thinking that their is security in these long term pleasure, and when it breaks, I feel lonely, bored. Until I replace it with lets say another girlfriend, and i get stuck in the cycle of pain and pleasure. Going relationship after relationship until I get married and that also exhaust and the relationship is stuck in a boring bond. And having affair seem intriguing.
-Why my mind want's security in the first place.
+Why my mind want's security in the first place.?
 
 Answer: your mind want security because of the survival instinct. Its natural to seek security and be happy about it, but problem begins when we think that this security is eternal and will never end, and its not true. 
 ---
 But unless it breaks you believe in it because you have your memories to proof it. All the good memories you have with your girlfriend will become the source of suffering when see would dump you. But because you have memories of this good relationship you see their is security, when its not, you cry, you feel lonely, the city eats you because all the memories attached to her are also shared by all the restaurant, parks or streets. And you look at them and become deeply sad. Places triggeres memories.
+---
+Now, if discomforts come and the pleasure is not there to support you, for example your girlfriend, now you are suffering and you don't have your girlfriend to make you the dish she make, the coffee you share, or the bed you share when you are sad, or her lap and her caressing you, massaging your head. ect. ect. Its hits hard.
+because, the usual is not there suppose you have a shitty day at office and you came home where your girlfriend is not there to support you as you are used to, it will surely hit hard, you will feel lonely.  I call it pain of having a pleasure, because its temporary.
+------
 
 ----
 
-In short, memory is the culprit.
+In short, memory is the culprit. Because security is this a lot of good momories related to a longterm pleasure like having a girlfriend. Loneliness is when that security is not there, suffering is facing pain when you don't have pleasure to hide it.
