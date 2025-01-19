@@ -11,7 +11,7 @@ Question: so, Whats in the memories that creates these illusion?
 
 Answer: Your ability to recall the memory, Its like a hard disk with your memories scattered around that you can access anytime you want, That ability of recalling a memory is called `Thought`. The ability to modify that recalled memory is called imagination. The ability of altering a past memory  and imagination is called Thinking.
 The problem is all this and the solution is to understand it. So, lets understand it.
----
+
 
 
 
