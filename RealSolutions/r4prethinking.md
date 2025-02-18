@@ -1,6 +1,6 @@
 ## Now the second tool is "Thinking"
 
-Thinking is the process that happens when Thought happens. You look at tree and all the memories related to trees triggers. Then thinking begins. Thought is normal part of our being. It should trigger when needed. you look at you mom and if thought doesn't trigger you will not recognize that its your mother.
+Thinking is the process that happens when Thought happens. You look at tree and all the memories related to trees triggers. Then thinking begins, which is pattern matching(comapprison), Anticipation, desire. Thought is normal part of our being. It should trigger when needed. you look at you mom and if thought doesn't trigger you will not recognize that its your mother.
 
 But when thought triggers, the process of thinking begins. If thought is not then thinking is not.
 So, if you see this that when any object interacts with your five senses, memories related to that object triggers, and then only thinking takes over. 
