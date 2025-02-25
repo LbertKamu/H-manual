@@ -14,7 +14,7 @@ For some reason we are talking to these images all the time. Over-thinking is ta
 Images are crucial part of our being. Thats how we survive, but when it comes into the living part it creates problem.
 The purpose of images is to recognize threat and discomfort to save ourself. Its an automatic process, thats why it sneak in our daily life.
 
-suppose you are waking and you hear a rattle near the bush, you will jump, that's what images are for. You recognize the rattle that belong to a snake. But soon you discover that a kid had a toy which makes a rattle noise. phew. you will laugh it off and move away.
+suppose you are walking and you hear a rattle near the bush, you will jump, that's what images are for. You recognize the rattle that belong to a snake. But soon you discover that a kid had a toy which makes a rattle noise. phew. you will laugh it off and move away.
 
 Images are needed, but when they are there in you active life it creates a problem. lets look at an example:-
 
@@ -43,7 +43,7 @@ Then the mind will do and blurt out all the things you want to say to her, how m
 
 Yet you are still washing utensils and getting angry in your head.
 
-you could talk to her in you head because you have an image about her, and that image is capable of making you angry.
+you could talk to her in you head because you have an image about her, and that image is capable of making you angry. When you live with a person long enough, you already know what this person is going to do and say in any giving situation and when they behave differently, you get a shock as they have changed. With him changing your image of his broke. 
 
 But when this image is not there, you would understand that she is getting old and can't work for long hour, she has a worsen back ache and she is cooking food and whipping ghee traditionally, by the time she is finished, her back, legs and her body is killing her, she need rest and she put these greesy utentiles in the sink. She is not evil just limited by her body, that makes it hard for her to remember things.
 
@@ -55,7 +55,7 @@ If its your brother who is lazy, you should ask him to pleases saperate the the 
 
 If its your old mother, the you should be considerate and just mention it to her, if its possible for her to separate.
 
-thats what being conscious means. that you see things as it is and take action according to it, not by following the rule but letting the conscious part of your's to act. Its only possible when you see beyond your memories and specific images.
+thats what being conscious means. that you see things as it is and take action according to it, not by following the rule but letting the conscious part of your's to act. Its only possible when you see beyond your memories and specific images related to people and things.
 
 
 
@@ -64,14 +64,3 @@ thats what being conscious means. that you see things as it is and take action a
 
 
 
-Mix of these basic process fucks you in different way. pattern matching, comparing, anticipation, desire. 
-its needed to survive and live, but when you suffer then they are responsible in one way or the other.
-lets look at some.
-
-If you pursue pleasure then pain will inavetely follow you. 
-if you pursue happiness, the sadness will follow you.
-loneliness and boredom. will born out of this. 
-desire and dis satisfaction. ambition and faliurs, insecurity. one is there because of the other. Loops. 
-the whole process is curropt and it takes a conscious being to see this. and step out of it. a conscious being doesn't deny pleasure, but he won't pursue it. Not because its a rule, but because you see the process chasing pleasure and the things that springs from them.
-
-lets list all the words that comes from suffering and point out which process of memory it is springing from
