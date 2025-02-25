@@ -2,23 +2,23 @@ so the basic process of thinking is: Patter matchin(comparing), anticipating, de
 
 Another process of thinking is translation.(We have trained our mind to do this, we created language to communicate and now we live through translation and the real world is lost behind these words, Its crazy how world and words looks similar but are totally different)
 
-Another process of thinking is Image making. the basics of thinking is used in these language and image making process.
 
-## So, the process of image making 
+Another process of thinking is Image making. 
 
-To understand what is this image making we need to see how it manifest in our life. 
+What is image making. Its the process of recognition as we have talked before how objects trigger the memories related to it. All the memories related to any object or person is called an image. This image is needed. When you see a lion on street, you know its dangerous and you don't approach it. You know this because, you have read it or you have learned from watching a documentary that lions are dangerous. If you didn't have these images of people, animals and the trees, you can't really survive.
 
-The craziest thing that springs from image making is talking to people in your head.
+But when we use it where its not needed it creates problems. Most of us are sick from overthinking.
 
-Don't get scared, its fine every person do it, unless one see that is not needed really.
+For some reason we are talking to these images all the time. Over-thinking is talking to someone or a crowd in your head. When you see that, whenever you think its either you are translating the god given experiences like, the sun is hot. Or, translating a thought. like I should brush my teeth. (Can you see what image trigger this sentence, watch yourself when you say this to yourself) or, its talking to the image of someone or a crowd in your head.
 
-so, the person we have a problem with for example our  father, mother, friend, girlfriend, ect ect... we criticize them in our head and that criticism goes on for a long time or for few minutes depending upon how much you hate or dislike that person. 
+Images are crucial part of our being. Thats how we survive, but when it comes into the living part it creates problem.
+The purpose of images is to recognize threat and discomfort to save ourself. Its an automatic process, thats why it sneak in our daily life.
 
-What is happening mostly in thinking is that you are talking to someone either an individual or the crowd or on a tv show talking to a host, or having an heated argument, when it comes to thinking you are talking to someone in your head.
+suppose you are waking and you hear a rattle near the bush, you will jump, that's what images are for. You recognize the rattle that belong to a snake. But soon you discover that a kid had a toy which makes a rattle noise. phew. you will laugh it off and move away.
 
-that someone is the image you have created about the person, and you are talking to him or her in your head, either for criticism or appriciation or anything., When you are using the language in you head, you are talking to someone. or talking to a crowd.
+Images are needed, but when they are there in you active life it creates a problem. lets look at an example:-
 
-example. My mother has a habit that she put greasy utensils with the regular dishes in the sink and it makes it hard to clean the regular dishes because they also get smear with the grease and it needs extra efforts to clean them.
+ My mother has a habit that she put greasy utensils with the regular dishes in the sink and it makes it hard to clean the regular dishes because they also get smear with the grease and it needs extra efforts to clean them.
 so, the conversation goes like this in my head.
 
 mother! how many times do I have to tell you that keep the greasy utensils away from the regular dishes, don't put them in the sink.
@@ -43,27 +43,30 @@ Then the mind will do and blurt out all the things you want to say to her, how m
 
 Yet you are still washing utensils and getting angry in your head.
 
-see, for yourself how many people you talk to in you head, in the form of critisism.
+you could talk to her in you head because you have an image about her, and that image is capable of making you angry.
 
-A trick to check this is to see who are the people you can't criticise because it will make your life hell, be it a boss, mother in law, father, mother, or any authority.
+But when this image is not there, you would understand that she is getting old and can't work for long hour, she has a worsen back ache and she is cooking food and whipping ghee traditionally, by the time she is finished, her back, legs and her body is killing her, she need rest and she put these greesy utentiles in the sink. She is not evil just limited by her body, that makes it hard for her to remember things.
 
-if you see yourself talking or criticising anyone in you head. The reply the person is giving is given by the image you have created about them.
+But these images are there and the day we see that these are limited and does't really help in living, it stops to intrupets. 
 
-this image making is the process of collecting data related to a person or a group or anything you interact with.
+this is the work of image that makes your life easy, yes we should not put the greasy stuff with the regular dishes in the sink. Its a lot of work. your image make sense. But its limited. we should see beyond the memory(collection of memories related to a specific object or a thing is call image), we should see beyond the  images.
 
-you have to see this in your life, the major part of thinking is you talking to someone or a crowd in you head. it is only possible because you have an image about the crowd or the individual.
+If its your brother who is lazy, you should ask him to pleases saperate the the utensils, be considerate of people you are living with.
 
-Now, to discover these images, you have to do the digging, for yourself.
+If its your old mother, the you should be considerate and just mention it to her, if its possible for her to separate.
 
-moving forward:
-this process produces the lions are dangerous 
-
+thats what being conscious means. that you see things as it is and take action according to it, not by following the rule but letting the conscious part of your's to act. Its only possible when you see beyond your memories and specific images.
 
 
 
 
 
-Mix of these basic process fucks you in different way. 
+
+
+
+Mix of these basic process fucks you in different way. pattern matching, comparing, anticipation, desire. 
+its needed to survive and live, but when you suffer then they are responsible in one way or the other.
+lets look at some.
 
 If you pursue pleasure then pain will inavetely follow you. 
 if you pursue happiness, the sadness will follow you.
