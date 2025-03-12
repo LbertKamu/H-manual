@@ -1,6 +1,6 @@
 # What is a human being?
 We are trying to understand how a human being function, physically or psychologically, and knowing it, is fairly easy because we are human being. 
-Don't you think it's absurd that a thing is trying to understand itself, its the thing, and its itself, what's there to understand, when it is, it, but we are here suffering and trying to understand ourself through a guru, through a book, or through mythology or god knows how many things we have smeared upon us listening to everybody other then ourself. The only solution we have is to watch ourself in daily life. What the fuck we do or what the fuck we have smeared upon us that makes us suffer.
+Don't you think it's absurd that a thing is trying to understand itself, its the thing, and its itself, what's there to understand, when it is, it, but we are here suffering and trying to understand ourself through a guru, through a book, or through mythology or god knows how many things we have smeared upon us listening to everybody other then ourself. The only solution we have is to watch ourself in daily life. What the fuck we do or what the fuck we have smeared upon us that makes us suffer. We have to see it.
 
 Lets look at an example to really understand.
 
@@ -16,7 +16,7 @@ When it happened it was noted that aristotle has added something meaningful to t
 **In the 11th century(1,590 years after pythagoras.)  Ibn al-Haytham, we know him as the father of optics**
 He also observed light and its relation to objects. He also rejected the eyes emit rays theory when he tirelessly studied the behavior of light, shadows, and reflection and proposed that we se things because light rays from sunlight reflects off the object and enters through our eyes. He wrote about it in his book, the book of optics. The young women feeding grapes ritual was not performed anymore, because now this man belonged to islam and its different culture and different religion, so, no grapes for him.
 
-**In 17th century(2,260 years after pythagoras.) Isaac Newton** work on nature of light expanded as more tools were available. He demonstrated that the light is made up of different colors, reflection and refraction which plays important role in how we human being perceive objects.
+**In 17th century(2,260 years after pythagoras.) Isaac Newton** work on the nature of light expanded as more tools were available. He demonstrated that the light is made up of different colors, reflection and refraction which plays important role in how we human being perceive objects.
 ![light](https://upload.wikimedia.org/wikipedia/commons/f/f5/Light_dispersion_conceptual_waves.gif)
 
 ## When you put sunlight through a prism it splits into seven colors. Below is a real image.
