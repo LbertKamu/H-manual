@@ -48,6 +48,6 @@ The amount of struggle I have to put, just to get a secluded place to myself is 
 So, when something happens the way we want it to happen we are happy for that day. and when nothing happen the way we want, we are miserable.
 
 ## lets recap:(if you haven't skipped the text.)
-Input is the life that you are living and facing everyday situation. 
-Inputs might make you pleasure into pain and might turn you pain into pleasure, We have no control over the inputs we get from the day or the daily living.
-Input challenges you likes and dislikes, your pain and pleasure.
+Inputs are the life that you are living and facing everyday. 
+Inputs might make your pleasure into pain and might turn your pain into pleasure, We have no control over the inputs we get from the day or the daily living.
+Input challenges your likes and dislikes, your pain and pleasure. 
