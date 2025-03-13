@@ -14,9 +14,8 @@ And when my pet died few days back, it was equally painful for me.
 
 So, I knew the loop of happiness and sadness, but when I realized that The source of happiness and sadness is same. Everything is changed.
 
-I say my friend buying a car with his money, he was on cloud ten and Everyone was appreciating him, until a labour carrying his stuff scratched his car. He flipped, anxiety took over him, anger took over him, fear took over him. He was sad about that scratch.
-And I watched like, I have found the glitch in the matrix. 
+I saw my friend buying a car with his money, he was on cloud ten and Everyone was appreciating him, until a labour carrying his stuff scratched his car. He flipped, anxiety took over him, anger took over him, fear took over him. He was sad about the scratch.
+And I watched like, I have found the glitch in a matrix. 
 
 I bought the iphone, I was happy and with in a month  I dropped it and the screen was shattered into pieces, My soul left my body and returned with a silent scream.
 
-Thats some materialistic references. Lets expand. 
