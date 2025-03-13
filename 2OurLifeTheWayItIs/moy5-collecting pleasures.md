@@ -45,7 +45,7 @@ Why you like physics and you friend like chemistry, its a personal preference ma
 
  You travel in metro and listen to music because you can't spent forty minutes with yourself and music just makes this little journey interesting.
 
- Next, loneliness, boredom, sadness.(shit is getting real, we are trying to understand the process of our suffering and misery, no solutions till now because we are exploring the map of suffering and map of us as of now. we will have different map after the solutions. Be with this.)
+ Next, loneliness, boredom, sadness.(shit is getting real, we are trying to understand the process of our suffering and misery, no solutions till now, because we are exploring the map of suffering and map of us as of now. we will have different map after the solutions. Be with this.)
 
 
 

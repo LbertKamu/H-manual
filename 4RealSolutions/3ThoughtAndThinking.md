@@ -8,13 +8,13 @@ The ability to recall the already collected memory is called thought.
 
 Q. How do we recall it ?
 
-When you see someone after a long time and you try to recall their name. How you make connections, trying to remember all the memories with that person, you can feel you brain frying, all the neurons trying to grab grab on to each other, you are sweating and panicking. If your neurons are able to make the connections, you might remember their names. but if you can't, you can ask them, why are you panicking.(laugh emoji). 
+When you see someone after a long time and you try to recall their name. How you make connections, trying to remember all the memories related to that person, you can feel you brain frying, all the neurons trying to grab on to each other, you are sweating and panicking. If your neurons are able to make the connections, you might remember their names. but if you can't, you can ask them, why are you panicking.(laugh emoji). 
 
-The situation above is common among us. We forget if we don't met, the people we used to know. And the connection related to that person also weakened.
+The situation above is common among us. We forget if we don't met the people we used to know. And the connection related to that person also weakens over time.
 
 Q. What connection. What the fuck, what are you talking about, where the suffering part is ?
 
-Yes, I am explaining it. We will get to the suffering part, Its important for you to know that. As I said memory is the culprit. so, I am getting to the suffering part. this is deeper then you think. Don't ask questions please. just read.
+Yes, I am explaining it. We will get to the suffering part, Its important for you to know this. As I said memory is the culprit. so, I am getting to the suffering part. this is deeper then you think. Don't ask questions please. just read.
 
 So, what connection. Why we forget the name of a person that we haven't seen in years.
 
@@ -27,7 +27,7 @@ It associates all the collected memories to the object. If the object is not the
  The memories are always there, stored in your brain waiting to get activated. The moment an object, place or a thing interacted with any of your five senses, the memories related to that object triggers.
 
  lets say you looked at a tree while you are waking and after five minute you find yourself smiling and thinking about you first kiss. And you realize why I am thinking about my first kiss.
- IF you have read this chapter, you will instantly realize that, you first kiss was under a tree, and when you looked at the tree which resembled the tree you kissed under, the memory triggered, and ones the memory triggered, you thought about your first kiss, then from there another memory trigger, where you thought about all the kiss you have had since then, then you begin thinking and comparing which kiss was perfect. and you realize you are a bad kisser, you feel bad,. You imagined kissing yourself the perfect kiss. you search on youtube, How to kiss better. while searching yor eyes on a comment, where a girl wants you to dm her for private kissing lesson. You go on reddit and ask people, is this genuine....and so on, so on. In the end you end up loosing a thousand bucks on a guy who was pretending to be a girl giving kissing lessons. 
+ IF you have read this chapter, you will instantly realize that, you first kiss was under a tree, and when you looked at the tree which resembled the tree you kissed under, the memory triggered, and ones the memory triggered, you thought about your first kiss, then from there another memory trigger, where you thought about all the kiss you have had since then, then you begin thinking and comparing which kiss was perfect. and you realize you are a bad kisser, you feel bad. You imagined kissing yourself the perfect kiss. you search on youtube, How to kiss better. while searching yor eyes falls on a comment, where a girl wants you to dm her for private kissing lesson. You go on reddit and ask people, is this genuine....and so on, so on. In the end you end up loosing a thousand bucks on a guy who was pretending to be a girl giving kissing lessons. 
 
  If you are wondering if this is my story, Its not, I just pulled it out of my ass, and partially inspired from my senior in college.
 
