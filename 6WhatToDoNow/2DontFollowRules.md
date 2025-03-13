@@ -1,4 +1,4 @@
-Don't follow rules. Its exhausting!
+## Don't follow rules. Its exhausting!
 
 Rules are created by people who are there where you want to be so naturally you are inclined to follow the rules.
 One thing to observe is that they could make the rules for you because, they experimented with life and they failed and they learned until they realize. Now you come and ask, sir how did you do it. He will tell you the rule that he discovered for himself.

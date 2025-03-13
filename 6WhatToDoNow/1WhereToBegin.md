@@ -2,7 +2,7 @@ You have given an overwhelming amount of information where the fuck should I beg
 
 Thats the thing you can begin from anywhere. Pick a chapter you like and try to see if its true.
 
-When I say the source of happiness and sadness is the same. Collect data by watching yourself everyday, See if, what I say is true. Not in a day, but watch yourself see when something makes you happy, does it make you sad also next day or after a year. Or something that made you sad now, used to make you happy.
+When I say the source of happiness and sadness is the same. Collect data by watching yourself everyday, See if, what I say is true. Not in a day take time and collect data, watch yourself see when something makes you happy, does it make you sad also next day or after a year. Or something that made you sad now, used to make you happy.
 
 When I say you avoid loneliness and boredom by pursuing pleasure, and this pursuing of pleasure is the cause of loneliness and boredom. Its a cycle. When you face loneliness and boredom, its you thinking or desiring things you used to have, now that they are not there you get lonely. You see it, in your life when you feel bored or lonely, collect data from your life by living and see if its true. Thats the thing about illusion, you collect enough data related to any illusion or loops, it shatters without you doing anything.
 

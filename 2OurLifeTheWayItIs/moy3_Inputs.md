@@ -5,7 +5,7 @@ Inputs are the life you are living:
 
 Thats why they say when life give you lemon, you make a lemonade and drink up.  
 
-Inputs are also your likes and dislikes but with a twist. Inputs are the day you face, no matter what your like or don't like, the day will challenge you, you love coffee, the day might feed you a shitty coffee to ruin you.   
+Inputs are also your likes and dislikes but with a twist. Inputs is the day you face, no matter what your like or don't like, the day will challenge you, you love coffee, the day might feed you a shitty coffee to ruin you.   
 
 `The day challenge you, and your struggle to accept the challenge makes you miserable.` The shit is getting real guys. Isin't it [interesting](https://youtu.be/Ugpg8XruhVk?t=7)
 
@@ -24,16 +24,13 @@ If you see this in your daily life, then you might want to ask why does it happe
 
 ## lets recap:
 Inputs are the life that you are living and facing everyday situation(everyday situations you face are inputs). 
-Inputs might make you pleasure into pain and might turn you pain into pleasure, We have no control over the inputs we get from the day or the daily living.
-Input challenges your likes and dislikes, your pain and pleasure and just reverse them..
+Inputs might make your pleasure into pain and might turn your pain into pleasure, We have no control over the inputs we get from the day or the daily living.
 
-
-
- ## As I was writing this something happened, you can skip it if you want:
+## As I was writing this something happened, you can skip it if you want:
  
   Its winter, and the sun was warm today and my mother was cutting the fruits for herself and she thought she should ask me. She screamed from the other room that if I want the fruit salad, and if yes then ask my brother if he also wants the same."
- I screamed back, that I was writing.
- She said. So, you want it or not, and did you ask you brother if he wants the salad.
+ I screamed back, that I am writing.
+  So, you want it or not, and did you ask you brother if he wants the salad. she asked.
  The momentum of my writing was lost. So, I choose to take the laptop to her and eat the salad. I asked my brother if he wants some, he was in a meeting so I left him alone. I am typing this as I am having these juicy fruits.
 
  You see the day is as alive as me, and if you watch the day closely you will see patterns and a recurring situations you face daily and you can shape the day according to your need.
@@ -46,11 +43,11 @@ The second story I also wrote during the lock down, but the days were demanding,
 
 My third story I wrote was in a park, because the library was crowded by now and people were freaking out by the amount of frenzy and focus I put into writing, how I flip page after page, stretch wildly, moving around in excitement when trying to imagining a plot. I had to leave.
 
-The amount of struggle I have to put, just to get a secluded place to myself is just because the day is as alive as I am, and it demands a lot, no matter who you are. even when I had managed to get the secluded writing place, there were many interruption, not by people but by loud music playing nearby, two dog fighting, or I am thinking about a girl I liked because writing certain character inflicted deep hidden memories.
+The amount of struggle I have to put, just to get a secluded place to myself is just because the day is as alive as I am, and it demands a lot, no matter who you are. even when I had managed to get the secluded writing place, there were many interruption, not by people but by loud music playing nearby, two dogs fighting, or I am thinking about a girl I liked because writing certain character inflicted deep hidden memories.
 
 So, when something happens the way we want it to happen we are happy for that day. and when nothing happen the way we want, we are miserable.
 
 ## lets recap:(if you haven't skipped the text.)
-Input is the life that you are living and facing everyday situation. 
-Inputs might make you pleasure into pain and might turn you pain into pleasure, We have no control over the inputs we get from the day or the daily living.
-Input challenges you likes and dislikes, your pain and pleasure and just reverse them.
+Inputs are the life that you are living and facing everyday. 
+Inputs might make your pleasure into pain and might turn your pain into pleasure, We have no control over the inputs we get from the day or the daily living.
+Input challenges your likes and dislikes, your pain and pleasure. 
